@@ -1,6 +1,3 @@
-# Kaleidoscope
-A portfolio of my work for the Whitney High School yearbook, Kaleidoscope.
-
 ## History
 The first edition of Kaleidoscope was published in 1979. More recently, the yeabook advisor position, after being vacated by the retirement of the previous, has been so far held by three teachers. The pandemic marked a shift in our design principles, and we are currently undertaking a redesign of the book.
 
