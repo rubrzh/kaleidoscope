@@ -10,4 +10,4 @@ At the end of my first year in Kaleidoscope, I was promoted to People Editor and
 ### 2022 - (Y)our Story
 ### 2023 - TBA
 
-#### Buy our 2023 yearbook: https://shop.yearbookmarket.com/whitneyhighschool
+#### Buy our 2023 yearbook at https://shop.yearbookmarket.com/whitneyhighschool!
