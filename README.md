@@ -9,7 +9,7 @@ At the end of my first year in Kaleidoscope, I was promoted to People Editor and
 ## My Work
 ### 2022 - (Y)our Story
 #### Spread Designs 
-![alt text](https://drive.google.com/file/d/1xI3ibXYWA0qMZJLM7jUp-GJM_FMshxvy/view?usp=sharing "International Day")
+![alt text]([https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/dog-puppy-on-garden-royalty-free-image-1586966191.jpg?crop=1.00xw:0.669xh;0,0.190xh&resize=640:*] "Title")
 All names and images have been removed to preserve the privacy of the individuals that were referenced or pictured.
 ### 2023 - TBA
 
