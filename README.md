@@ -1,4 +1,4 @@
-![XX](YB%20Merch%20Back%20Design%20Black%20PNG.png "placeholder")
+![XX](YB%20Merch%20Back%20Design%20Black.jpeg "placeholder")
 The current Kaleidoscope logo, created by Samantha Catacutan.
 
 ## History
