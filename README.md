@@ -9,7 +9,7 @@ At the end of my first year in Kaleidoscope, I was promoted to People Editor and
 ## My Work
 ### 2022 - (Y)our Story
 #### Spread Designs 
-![alt text](https://github.com/rubrzh/kaleidoscope/blob/d93f0ca934f5c22ece8627c085cf90f52e51bd1f/ID%20REDACTED.png)
+![XX](https://github.com/rubrzh/kaleidoscope/blob/d93f0ca934f5c22ece8627c085cf90f52e51bd1f/ID%20REDACTED.png)
 
 All names and images have been removed to preserve the privacy of the individuals that were referenced or pictured.
 ### 2023 - TBA
