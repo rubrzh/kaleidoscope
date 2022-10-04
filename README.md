@@ -12,13 +12,13 @@ At the end of my first year in Kaleidoscope, I was promoted to **People Editor**
 ## My Work
 ### 2022 - *(Y)our Story*
 #### Copies
-All copies I wrote for *(Y)our Story* are linked in [this Google Drive folder](https://drive.google.com/drive/folders/1ASHOXk9geF8IAQ4mvXPKYVmPDm04g4Le?usp=sharing).
+All copies I wrote for *(Y)our Story* are linked in [this Google Drive folder](https://drive.google.com/drive/folders/1ASHOXk9geF8IAQ4mvXPKYVmPDm04g4Le?usp=sharing). All names have been redacted to protect the privacy of the named individuals.
 
 #### Spread Designs 
 ![XX](ID%20REDACTED.png "placeholder")
-All names and images have been removed to preserve the privacy of the individuals that were referenced or pictured.
+All names and images have been removed to preserve the privacy of the individuals that are referenced in the copy or pictured in the photos.
 
 ### 2023 - *TBA*
-We are currently working on the 2023 yearbook. Since the book is currently a work in progress, I cannot release anything for the time being. Check back in June 2023 to see the work I did.
+We are currently working on the 2023 yearbook. We cannot release any details for the time being, but check back in June 2023 to see my published work!
 
 #### Buy our 2023 yearbook at [yearbookmarket.com](https://shop.yearbookmarket.com/whitneyhighschool/)!
