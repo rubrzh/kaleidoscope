@@ -8,6 +8,9 @@ At the end of my first year in Kaleidoscope, I was promoted to People Editor and
 
 ## My Work
 ### 2022 - (Y)our Story
+#### Spread Designs 
+![alt text](https://drive.google.com/file/d/1xI3ibXYWA0qMZJLM7jUp-GJM_FMshxvy/view?usp=sharing "International Day")
+All names and images have been removed to preserve the privacy of the individuals that were referenced or pictured.
 ### 2023 - TBA
 
 #### Buy our 2023 yearbook at https://shop.yearbookmarket.com/whitneyhighschool!
