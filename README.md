@@ -1,3 +1,6 @@
+![XX](YB%20Merch%20Back%20Design%20Black%20PNG.png "placeholder")
+The current Kaleidoscope logo, created by Samantha Catacutan.
+
 ## History
 The first edition of Kaleidoscope was published in 1979. More recently, the yeabook advisor position, after being vacated by the retirement of the previous, has been so far held by three teachers. The pandemic marked a shift in our design principles, and we are currently undertaking a redesign of the book.
 
